@@ -7,12 +7,12 @@
 * ! u can find me on #1 serv. rus near the sonic and md zone n on safe serv near the fnaf,sonic and md zone...
 
 * pls dnc my skins. sometimes dniuf. But i'm friendlyy. u can interact with me if i don't in afk, but I often sitting afkk 😅  i love oilrose sm ohhhh
-
-
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
 * I'm a minor. ENFP-T. extrovert. 1? y.o. kinns : anne(amphipia); Luz ; ENA ; V(m/d) . i  love j from murder drones
-
-
-
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
 * I can often make mistakes if I speak English (forgive me if there are mistakes in the text :_ I'm writing temporarily without a translator, I'm trying)
 
 * i'm listening odetari, i love his song 
