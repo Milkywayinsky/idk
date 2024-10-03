@@ -8,7 +8,8 @@
 
 * pls dnc my skins. sometimes dniuf. But i'm friendlyy. u can interact with me if i don't in afk, but I often sitting afkk 😅  i love oilrose sm ohhhh
 
-* I'm a minor, ok yes. uhhhhhhhh eng so.. 
+
+* I'm a minor. ENFP-T. extrovert. 1? y.o. kinns : anne(amphipia); Luz ; ENA ; V(m/d) . i  love j from murder drones
 
 * I can often make mistakes if I speak English (forgive me if there are mistakes in the text :_ I'm writing temporarily without a translator, I'm trying)
 
