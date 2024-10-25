@@ -23,6 +23,6 @@
 
 * stupid person :3 hehe..
 
-Marcy wu.jfif
+
    
 ────୨ৎ────
