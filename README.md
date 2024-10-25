@@ -1,4 +1,4 @@
-# bio
+# bio about mee
 * hello . im Liv and here is a little information about me, just a little.
 
 
