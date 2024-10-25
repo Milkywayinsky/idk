@@ -15,12 +15,14 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 * I can often make mistakes if I speak English (forgive me if there are mistakes in the text :_ I'm writing temporarily without a translator, I'm trying)
 
-* i'm listening odetari, i love his song 
+* i'm listening odetari and Alex G.. but always i listening different authors..
 
 * I'm an artist (sort of) but I don't post my work anywhere yet, sorry
   
 * we can talk in discord/telegramm
 
-* stupid person :3 hehe.. 
+* stupid person :3 hehe..
+
+
    
 ────୨ৎ────
