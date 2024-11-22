@@ -8,7 +8,7 @@
 
 * pls dnc my skins. i'm friendlyy. u can interact with me if i don't in afk, but I often sitting afkk 😅  c+h 
 ㅤㅤㅤㅤㅤㅤㅤ
-* I'm a minor. ENFP-T. extrovert. 1? y.o. she/he/they kinns : anne(amphipia); Luz(TOH) ; ENA ; V(m/d) . i  love j from murder drones
+* I'm a minor. ENFP-T. extrovert. 1? y.o. she/he/they . i love purple and blue colors kinns : anne(amphipia); Luz(TOH) ; ENA ; V(m/d) . i  love j from murder drones
 ㅤㅤㅤㅤㅤㅤㅤ
 * I can often make mistakes if I speak English (forgive me if there are mistakes in the text :_ I'm writing temporarily without a translator, I'm trying)
 
