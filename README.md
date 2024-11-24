@@ -21,4 +21,6 @@
 * stupid person :3 hehe..
 
 * (looking for eng friends)
+
+* WHAT AM I DOING WRONG IN THIS LIFE? Why is everything so lousy for me? Why. Why.
 ────୨ৎ────
