@@ -22,5 +22,7 @@
 
 * (looking for eng friends,pls)
 
+* (pretend there is a picture of marcannes here, I just can’t insert a photo <:_|)
+
 * WHAT AM I DOING WRONG IN THIS LIFE? Why is everything so lousy for me? Why. Why.
 ────୨ৎ────
