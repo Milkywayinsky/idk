@@ -6,7 +6,9 @@
 
 * ! u can find me on #1 serv. rus near the sonic and md zone, near bakery and on safe serv near the fnaf,sonic and md zone, and amphibia (below the bakery)
 
-* pls dnc my skins. i'm friendlyy. u can interact with me if i don't in afk, but I often sitting afkk 😅  c+h 
+* pls dnc my skins.
+
+* i'm friendlyy. u can interact with me if i don't in afk, but I often sitting afkk 😅  c+h 
 ㅤㅤㅤㅤㅤㅤㅤ
 * I'm a minor. ENFP-T. extrovert. 1? y.o. she/he/they | I'm an emotional person:[ I get yelled at a lot so sometimes I'm in a bad mood, sorry <:( . i love purple and blue colors. kinns : anne(amphipia); Luz(TOH) ; ENA ; V(m/d) . i  love j from murder drones
 ㅤㅤㅤㅤㅤㅤㅤ
