@@ -16,7 +16,7 @@
 
 * I'm an artist (sort of)
   
-* we can talk in discord/telegram, use in telegram : @oldcasset1e, discord : whats.going.0n #1689(it seems)
+* we can talk in discord/telegram, use in telegram : @milkywayinsky, discord : whats.going.0n #1689(it seems)
 
 * stupid person :3 hehe..
 
